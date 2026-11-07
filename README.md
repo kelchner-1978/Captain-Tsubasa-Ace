@@ -234,4 +234,4 @@ Captain Tsubasa: Ace is offered as a full free version with all features and upd
 Don’t miss out on the excitement! Download Captain Tsubasa: Ace now and step onto the field to become the champion you've always dreamed of being!
 
 ---
-**Last updated:** 2026-11-07 01:39:57 UTC
+**Last updated:** 2026-11-07 08:25:31 UTC
